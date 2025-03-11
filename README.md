@@ -2,8 +2,8 @@
 
 kotki lalala lol
 
-2 zmiana
 
 
 ndjcnjfcfc
 
+ale mam ochote na spagetti
